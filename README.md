@@ -1,2 +1,0 @@
-# madrid-danismanlik
-madrid-danismanlik
